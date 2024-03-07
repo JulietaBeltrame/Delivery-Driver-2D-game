@@ -1,5 +1,4 @@
 
+https://github.com/JulietaBeltrame/Delivery-Driver-2D-game/assets/85126976/1e0eaef6-c6da-42f6-894e-edb75a5c3a0d
 
-
-https://github.com/JulietaBeltrame/Delivery-Driver-2D-game/assets/85126976/c15b6f32-3eef-4b99-9f87-7e992f860895
 
